@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SammyNoLackin
+- 👀 I’m interested in music/art, history, & psychology
+- 🌱 I’m currently learning how to finally read a book front to back, and how to get a new job
+- 💞️ I’m looking to collaborate on anything :)
+- 📫 Reach on me on GitHub
